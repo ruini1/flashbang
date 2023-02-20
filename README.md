@@ -1,5 +1,8 @@
 # a;afaew
-credit to MircoWittrien and DevilBro
+credit to MircoWittrien aka Devilbro
+
+ @donate https://www.paypal.me/MircoWittrien
+ @patreon https://www.patreon.com/MircoWittrien
 
 # flashbang
 The greatest discord theme of all time.
